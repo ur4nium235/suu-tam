@@ -2,49 +2,31 @@
 
 Tuổi trẻ, bạn làm gì, nói gì, đam mê gì, ước mơ gì không quan trọng...quan trọng là bạn có kiếm được ra tiền không? Để rồi tuổi 35, khi có tiền bạn cũng có thể tự tin nói với vợ con và bố mẹ, mọi người yên tâm, đừng sợ gì cả, tất cả đã có bạn lo được.
 
-1⃣Năm đó, bạn 23 tuổi. Lần đầu tiên ra mắt nhà bạn gái, gặp bố mẹ.
+Năm đó, bạn 18 tuổi và chuẩn bị bước vào kỳ thi đại học. Bạn là niềm hi vọng của cả nhà. Lịch học của bạn dày đặc đến mức hôm nào cũng 21-22h tối mới về đến nhà rồi lại lao đầu vào làm đề đến rạng sáng mới đi ngủ. Mất công ôn luyện như thế, cố gắng như thế, ai cũng nghĩ bạn sẽ đỗ. Vậy mà... bạn trượt. 
 
-Thực ra, trước đây bạn từng chat video với họ. Nhưng lần này đặc biệt hơn, bố mẹ bạn gái nhiệt tình mời bạn đến nhà chơi. Ngồi trước một mâm cơm thịnh soạn, lần gặp mặt chính thức, bạn có chút bất an, hồi hộp, lo lắng.
+Làm sao bạn có thể trượt đại học được, bạn là niềm tự hào của cả nhà cơ mà. Nhưng rồi niềm hi vọng của cả nhà cứ dần teo tóp lại theo thời gian. Cánh cửa đại học trước mặt bạn khép lại từ từ. Không có tiếng “rầm”, cánh cửa ấy đóng lại trong im lìm, đóng lại một cách êm ái nhưng tàn nhẫn, tuyệt nhiên không để chừa một khe hở. 
 
-Ăn được nửa bữa cơm, bố bạn gái quả nhiên bắt đầu hỏi chuyện, đầu tiên là những vấn đề xung quanh cuộc sống của bạn, sau đó cuộc trò chuyện bắt đầu đi đến vấn đề chính.
+Rồi có người nói với bạn: 
 
-Khi nào thì chuẩn bị mua nhà riêng?
+- Cứ nộp nguyện vọng 2 vào 1 trường nào đó, vừa học vừa ôn thi cho năm sau. Một năm ngồi nhà cũng chán. 
 
-Bên cạnh, mẹ bạn gái cũng bắt đầu chậm rãi nói, con rể ông Lưu nhà hàng xóm, vừa mua được một căn hộ 3 phòng ngủ, 2 phòng khách.
+Có nhiều con đường khác nhau cho bạn chọn lắm chứ đâu chỉ có con đường dẫn qua cánh cổng đại học. Nhưng mọi chuyện không đơn giản như vậy. Đó chỉ là chút nắng nhẹ của bầu trời trước cơn giông bão mà thôi. Một hôm trong lúc bạn gặp người quen. Họ hỏi bạn: 
 
-Bạn không biết, nên trả lời như thế nào mới làm hài lòng được họ. Trong đầu bạn suy nghĩ, đối với bạn bây giờ mà nói tài sản giá trị lớn nhất chỉ là chiếc thẻ ngân hàng với một tháng 7 triệu đồng đổ về mỗi tháng.
+- Thế cháu năm nay vào trường gì? 
 
-Sau đó, không khí trên bàn ăn bắt đầu dần dần nguội đi. Bạn nhanh nhanh chóng chóng ăn xong cơm, tìm đại một lý do công ty có việc gấp xin phép ra về.
+Đã rất nhiều người hỏi bạn như thế và chắc chắn chẳng dễ dàng gì trả lời để rồi nhìn thấy trong ánh mắt người ta vẻ thương hại.
 
-Một tuần sau, bạn hẹn bạn gái ra ngoài, nhẹ nhàng nói câu chia tay.
+Năm sau đó, bạn thi tiếp nhưng lần này đổi cơ chế tuyển sinh: "Thi trước, chọn trường sau". Giống như chơi chứng khoán, càng giai đoạn cuối thì thứ hạng của bạn cứ bị đẩy xuống liên tục. Nhưn cuối cùng bạn đã đỗ đại học. Cứ tưởng mọi chuyện sẽ êm đềm cho đến khi:
 
-Cô ấy khóc, giống như kẻ bạc tình, bạn lạnh lùng quay lưng đi về hướng khác.
+1⃣ Năm đó, bạn 24 tuổi - bạn mới ra trường được vài tuần. Lần đầu tiên ra mắt nhà bạn gái, gặp bố mẹ cô ấy. Thực ra, trước đây bạn từng nói chuyện với họ. Nhưng lần này đặc biệt hơn, bố mẹ bạn gái nhiệt tình mời bạn đến nhà chơi. Ngồi trước một mâm cơm thịnh soạn, lần gặp mặt chính thức, bạn có chút bất an, hồi hộp, lo lắng. Ăn được nửa bữa cơm, bố bạn gái quả nhiên bắt đầu hỏi chuyện, đầu tiên là những vấn đề xung quanh cuộc sống của bạn, sau đó cuộc trò chuyện bắt đầu đi đến vấn đề chính. Khi nào thì chuẩn bị mua nhà riêng? Bên cạnh, mẹ bạn gái cũng bắt đầu chậm rãi nói, con rể ông XYZ nhà hàng xóm, vừa mua được một căn hộ 3 phòng ngủ, 2 phòng khách. Bạn không biết, nên trả lời như thế nào mới làm hài lòng được họ. Trong đầu bạn suy nghĩ, đối với bạn bây giờ mà nói tài sản giá trị lớn nhất chỉ là chiếc thẻ ngân hàng với chưa đến 10 triệu đồng đổ về mỗi tháng.
 
-Không phải bạn không yêu cô ấy, cũng không phải trái tim bạn tàn nhẫn. Đơn giản bạn bắt đầu hiểu được, chỉ yêu thôi chưa đủ, tình yêu không kèm theo vật chất đính kèm, sớm muộn gì cũng sẽ mỗi người một nơi.
+Sau đó, không khí trên bàn ăn bắt đầu dần dần nguội đi. Bạn nhanh chóng ăn xong cơm, tìm đại một lý do công ty bạn có việc gấp xin phép ra về. Một tuần sau, bạn hẹn cô ấy ra ngoài, nhẹ nhàng nói câu chia tay. Cô ấy khóc, giống như kẻ bạc tình, bạn lạnh lùng quay lưng đi về hướng khác. Không phải bạn không yêu cô ấy, cũng không phải trái tim bạn tàn nhẫn. Đơn giản bạn bắt đầu hiểu được, chỉ yêu thôi chưa đủ, tình yêu không kèm theo vật chất đính kèm, sớm muộn gì cũng sẽ mỗi người một nơi. Trong lúc yêu tiền có thể không quan trọng, nhưng khi kết hôn đó lại là một chuyện hoàn toàn khác. Năm đó dịch Covid-19 hoành hành trên toàn thế giới, phải thực hiện giãn cách xã hội để khống chế dịch. Công ty, các dịch vụ không cần thiết phải đóng cửa, rất nhiều người mất việc, công ty bạn đang làm doanh số thu giảm phải giảm lương để duy trì, bạn chấp nhận ở lại đồng hành cùng công ty và giảm 20% lương trong những ngày đó. Mọi chuyện chưa dừng lại ở đó,... 
 
-Trong lúc yêu tiền có thể không quan trọng, nhưng khi kết hôn đó lại là một chuyện hoàn toàn khác.
+Vì muốn kiếm được nhiều tiền bù vào các khoản thiếu hụt do giảm lượng và đã chi, ngoài thời gian làm việc ở công ty, bạn còn làm thêm cả buổi tối. Nhiều lần thức khuya đến mức đôi mắt bạn thâm quầng vì thiếu ngủ.
 
-2⃣Bạn 26 tuổi, bạn cuối cùng cũng tích lũy riêng được một ít riêng cho mình.
+2⃣Bạn 27 tuổi, bạn cuối cùng cũng tích lũy được một ít cho mình. Trong ba năm này, bạn vẫn đi làm việc ở thành phố, tìm kiếm cơ hội mới. Bạn bán mạng làm việc, hết lòng vì công việc. Tiền lương của bạn tăng lên gấp đôi, bạn bắt đầu cảm thấy cuộc đời bạn có lẽ đã rẽ sang một bước ngoặt mới, cảm thấy bản thân tràn đầy năng lượng mới, bạn quyết định mua nhà. Mỉm cười, đĩnh đạc cùng với nhân viên tư vấn nhà đất đi xem nhà. Bạn tìm được căn hộ ưng ý, môi trường rất tốt, giao thông thuận tiện, cách công ty không xa, siêu thị, trung tâm mua sắm ngay dưới nhà, xung quanh còn có các trường học tiện cho con bạn đi học sau này… Nhưng khi bàn đến giá cả, bạn lặng người đi. Giá nhà đất tăng quá nhanh, quá sức tưởng tượng của bạn. Bạn về nhà, quyết định đợi một thời gian nữa, đợi giá nhà đất lắng xuống sẽ đi mua. Nhưng sau khi bạn lướt Internet, đọc báo, thấy được một dòng trạng thái: "Dân tình đang đổ xô đi mua nhà cửa, thậm chí còn xếp hàng thâu đêm để mua được căn hộ ưng ý."
 
-Trong ba năm này, bạn đi làm việc ở thành phố, tìm kiếm cơ hội mới. Bạn bán mạng làm việc, hết lòng vì công việc, vì muốn kí được hợp đồng với khách, thậm chí uống rượu đến mức chảy máu dạ dày cũng cắn răng chịu đựng.
-
-Tiền lương của bạn tăng lên gấp đôi, bạn bắt đầu cảm thấy cuộc đời bạn có lẽ đã rẽ sang một bước ngoặt mới, cảm thấy bản thân tràn đầy năng lượng mới, bạn quyết định mua nhà.
-
-Mỉm cười, đĩnh đạc cùng với nhân viên tư vấn nhà đất đi xem nhà.
-
-Bạn tìm được căn hộ ưng ý, môi trường rất tốt, giao thông thuận tiện, cách công ty không xa, siêu thị, trung tâm mua sắm ngay dưới nhà, xung quanh còn có các trường học tiện cho con bạn đi học sau này…
-
-Nhưng khi bàn đến giá cả, bạn lặng người đi. Giá nhà đất tăng quá nhanh, quá sức tưởng tượng của bạn.
-
-Bạn về nhà, quyết định đợi một thời gian nữa, đợi giá nhà đất lắng xuống sẽ đi mua. Nhưng sau khi bạn lướt Face, đọc báo, thấy được một dòng trạng thái, dân tình đang đổ xô đi mua nhà cửa, thậm chí còn xếp hàng thâu đêm để mua được căn hộ ưng ý.
-
-Bạn ý thức được, bạn không thể chạy đua được với giá nhà đất, nếu không mua lúc này, sợ rằng sẽ chẳng bao giờ còn cơ hội.
-
-Bạn hạ quyết tâm, gọi điện cho bố mẹ, mượn sổ tiết kiệm 500 triệu số tiền dưỡng lão của họ.
-
-Ba ngày sau, mượn ngược mượn xuôi bạn tích góp đủ số tiền đặt cọc, bạn cầm tiền đi kí hợp đồng mua nhà.
-
-Thời khắc đặt bút kí lên hợp đồng, sống mũi cay cay, mắt có chút nhòe đi. Có tiền thật là tốt. Làm đàn ông, bạn càng ý thức sâu sắc hơn, có tiền, mới có nhà, mới có cảm giác ổn định cuộc sống.
+Bạn hạ quyết tâm, gọi điện cho bố mẹ, mượn sổ bảo hiểm dưỡng lão của họ. Ba ngày sau, mượn ngược mượn xuôi bạn tích góp đủ số tiền đặt cọc, bạn cầm tiền đi kí hợp đồng mua nhà. Thời khắc đặt bút kí lên hợp đồng, sống mũi cay cay, mắt có chút nhòe đi. Có tiền thật là tốt. Làm đàn ông, bạn càng ý thức sâu sắc hơn, có tiền, mới có nhà, mới có cảm giác ổn định cuộc sống.
 
 3⃣Trước bốn tháng khi bạn đón sinh nhật lần thứ 28, bạn mất đi công việc hiện tại.
 
